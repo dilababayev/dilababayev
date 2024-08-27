@@ -12,6 +12,6 @@
 
 - 😄 Pronouns **she/her**
 
-- ⚡ Fun fact **I am so scared of frogs**
+- ⚡ Fun fact **I am so scared of frogs:/**
 
 </p>
